@@ -1,7 +1,7 @@
 <h2>Auete影视官网，蓝光超清精品影视在线网站|网页版入口|下载</h2>
 <p>Auete影视是一个综合性的影视资源平台，专注于提供蓝光超清的热门电影、美剧、韩剧以及最新热播电视剧等资源。用户可以通过该平台在线观看或下载各种类型的影视作品，包括动作、喜剧、科幻、悬疑等类型的电影，以及古装、现代、言情等题材的电视剧。此外，该网站还提供精品动漫和综艺节目，满足不同用户的观影需求。Auete影视以其高清画质和流畅的播放体验赢得了用户的广泛好评，是影视爱好者不可错过的优质平台之一。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5843.html" target="_blank" ><strong>Auete影视最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank" ><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank" ><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
